@@ -14,7 +14,7 @@ https://github.com/livisk/livisk/assets/170719355/edf496eb-6d05-4db3-b87b-649936
 
 
 ![giphy1-ezgif com-resize](https://github.com/livisk/livisk/assets/170719355/3a6d8702-f7ca-49b3-9670-f614f565f566)
- ![giphy-ezgif com-resize](https://github.com/livisk/livisk/assets/170719355/57e05250-ef2a-4564-8164-30734a4c0834) ![EHOTHOEHO-ezgif com-resize (1)](https://github.com/livisk/livisk/assets/170719355/6f096f18-b6e7-48c8-8ef3-ca9d42171f5b) ![giphy1-ezgif com-resize (1)](https://github.com/livisk/livisk/assets/170719355/1ee53e56-3de2-436b-ae94-18ed98e45d77)
+ ![giphy-ezgif com-resize](https://github.com/livisk/livisk/assets/170719355/57e05250-ef2a-4564-8164-30734a4c0834) ![EHOTHOEHO-ezgif com-resize (1)](https://github.com/livisk/livisk/assets/170719355/6f096f18-b6e7-48c8-8ef3-ca9d42171f5b)![giphy1-ezgif com-resize (1)](https://github.com/livisk/livisk/assets/170719355/1ee53e56-3de2-436b-ae94-18ed98e45d77)
 
  ![Untitled9_20240524055840](https://github.com/livisk/livisk/assets/170719355/7f32a00e-0c3b-4288-8f60-00ba2f59b7fe)
 
