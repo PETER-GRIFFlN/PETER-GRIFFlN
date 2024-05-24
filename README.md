@@ -9,6 +9,11 @@ https://github.com/livisk/livisk/assets/170719355/edf496eb-6d05-4db3-b87b-649936
 ## **★my main intrests! <-most intrested_least intrested->★**
 
 ★HERMITCRAFT★LIFE-SERIES★SPLATOON★COROIKA★YHS.SG★YHS.IF★FLAMINGO★ONGEZELLIG★NSO★COTL★
+]![Untitled9_20240524061059](https://github.com/livisk/livisk/assets/170719355/597e289f-a925-4203-bcb3-3614ef4316a9)
+## thank you so much if you crown/say my skin is pretty!! it means alot ^^'
+
+![giphy-ezgif com-resize](https://github.com/livisk/livisk/assets/170719355/57e05250-ef2a-4564-8164-30734a4c0834) 
+
 
 
 
