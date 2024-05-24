@@ -8,7 +8,7 @@ animation by lailaimei. LET GIFS LOAD FOR FULL EXPERINCE
 
 # **★my main intrests! <-most intrested=least intrested->★**
 
-### ★HERMITCRAFT★LIFE-SERIES★SPLATOON★COROIKA★YHS.SG★YHS.IF★CRK★FLAMINGO★ONGEZELLIG★NSO★
+#### ★HERMITCRAFT★LIFE-SERIES★SPLATOON★COROIKA★YHS.SG★YHS.IF★CRK★FLAMINGO★ONGEZELLIG★NSO★
 ![Untitled9_20240524055840](https://github.com/livisk/livisk/assets/170719355/8ecb71bc-c7e1-4d97-86a3-a8f3872a79a6)
 
 ## thank you so much if you crown/say my skin is pretty!! it means alot ^^'
