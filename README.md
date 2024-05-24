@@ -8,7 +8,8 @@
 ## **★my main intrests! <-most intrested=least intrested->★**
 
 #### ★HERMITCRAFT★LIFE-SERIES★SPLATOON★COROIKA★YHS.SG★YHS.IF★CRK★FLAMINGO★ONGEZELLIG★NSO★
-![Untitled9_20240524061059](https://github.com/livisk/livisk/assets/170719355/597e289f-a925-4203-bcb3-3614ef4316a9)
+![Untitled9_20240524055840](https://github.com/livisk/livisk/assets/170719355/8ecb71bc-c7e1-4d97-86a3-a8f3872a79a6)
+
 ## thank you so much if you crown/say my skin is pretty!! it means alot ^^'
 ![giphy-ezgif com-resize (1)](https://github.com/livisk/livisk/assets/170719355/248a831a-ef19-406d-8572-382ff2bbee91)![EHOTHOEHO-ezgif com-resize (2)](https://github.com/livisk/livisk/assets/170719355/fe9a49da-920a-4f8f-9121-bad66e6f2a5e)
 
@@ -22,7 +23,6 @@
 ![giphy1-ezgif com-resize (3)](https://github.com/livisk/livisk/assets/170719355/c236769e-ef6f-4efb-b7a1-ad9189fb7c22)
 $\textcolor{pink}{want \ a \ github \ like \ mine? \ shoot \ me \ a \ private \ message \ i \ would \ be \ glad \ to \ help \ you! } $
 
-$\textcolor{pink}{want \ yes \ i \ am \ making \ you \ pm \ me \ so \ i \ can \ interact \ with \ someone \ cause \ i \ have \ horrible \ social anxiety} $
 
 
 
