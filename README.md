@@ -6,7 +6,7 @@
 
 animation by lailaimei 
 
-## **★my main intrests! <-most intrested=least intrested->★**
+# **★my main intrests! <-most intrested=least intrested->★**
 
 #### ★HERMITCRAFT★LIFE-SERIES★SPLATOON★COROIKA★YHS.SG★YHS.IF★CRK★FLAMINGO★ONGEZELLIG★NSO★
 ![Untitled9_20240524055840](https://github.com/livisk/livisk/assets/170719355/8ecb71bc-c7e1-4d97-86a3-a8f3872a79a6)
