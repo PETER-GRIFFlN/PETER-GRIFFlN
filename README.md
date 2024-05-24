@@ -13,8 +13,11 @@ https://github.com/livisk/livisk/assets/170719355/edf496eb-6d05-4db3-b87b-649936
 ## thank you so much if you crown/say my skin is pretty!! it means alot ^^'
 
 
-![giphy1-ezgif com-resize](https://github.com/livisk/livisk/assets/170719355/3a6d8702-f7ca-49b3-9670-f614f565f566)
- ![giphy-ezgif com-resize](https://github.com/livisk/livisk/assets/170719355/57e05250-ef2a-4564-8164-30734a4c0834) ![EHOTHOEHO-ezgif com-resize (1)](https://github.com/livisk/livisk/assets/170719355/6f096f18-b6e7-48c8-8ef3-ca9d42171f5b)![giphy1-ezgif com-resize (2)](https://github.com/livisk/livisk/assets/170719355/28d50e0a-04e7-4c6a-bd2b-d7dd5f5920ee)
+![giphy-ezgif com-resize](https://github.com/livisk/livisk/assets/170719355/907e9251-32e8-4887-97a8-5faeb3e97885)![giphy1-ezgif com-resize](https://github.com/livisk/livisk/assets/170719355/14c3dca3-4e67-45c2-97e7-44b1a9d4e0ed)![giphy1-ezgif com-resize (2)](https://github.com/livisk/livisk/assets/170719355/b9c1820e-e2f2-4e7c-97ab-ddb3d7c403d7)
+![EHOTHOEHO-ezgif com-resize (1)](https://github.com/livisk/livisk/assets/170719355/b1bad686-fbb4-4c43-98e9-62d98affc547)
+
+
+
 
 
  ![Untitled9_20240524055840](https://github.com/livisk/livisk/assets/170719355/7f32a00e-0c3b-4288-8f60-00ba2f59b7fe)
