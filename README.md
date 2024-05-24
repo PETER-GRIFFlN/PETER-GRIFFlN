@@ -2,9 +2,8 @@
 
 ### **★im Livis and i use they/them !! want to know more about me? scroll down!!**
 
-$\textcolor{pink}{animation \ by \ lailaimei \ yanderehighschool \ unmute+play \ to \ hear+listen } $
+![bpHMI70Uqqagrg3C-ezgif com-video-to-gif-converter (2)](https://github.com/livisk/livisk/assets/170719355/ec8b31a6-203b-4f5a-97f3-547efd472b54)
 
-https://github.com/livisk/livisk/assets/170719355/edf496eb-6d05-4db3-b87b-649936ff5448
 
 ## **★my main intrests! <-most intrested=least intrested->★**
 
