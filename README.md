@@ -21,9 +21,7 @@ animation by lailaimei
 # music artists i like listening too!
 ### Ken-ashcorp,The-crane-wives,Fake-type,Kets4eki,Vampyx,Ayesha-erotica,splatoon(bottom-feeders) and evil anvil
 
-![giphy1-ezgif com-resize (3)](https://github.com/livisk/livisk/assets/170719355/c236769e-ef6f-4efb-b7a1-ad9189fb7c22)
-$\textcolor{pink}{want \ a \ github \ like \ mine? \ shoot \ me \ a \ private \ message \ i \ would \ be \ glad \ to \ help \ you! } $
-
+want to know hot to put pictures in your github? private message em and ill happily help you!! ^^
 
 
 
