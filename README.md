@@ -1,4 +1,4 @@
-!<span style="color: green"> Some green text </span>
+!<span style="color: green"> ANIMATION BY ''lailaimei'' PRESS PLAU AND TURN SOUND ON TO HEAR MUSIC! </span>
 
 https://github.com/livisk/livisk/assets/170719355/7475484c-1bd9-47ac-8ffd-dfe83af667e1
 
