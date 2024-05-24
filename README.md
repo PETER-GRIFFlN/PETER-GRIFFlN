@@ -1,5 +1,5 @@
-<font color="green"> ANIMATION BY ''lailaimei'' PRESS PLAU AND TURN SOUND ON TO HEAR MUSIC! </font>
-https://github.com/livisk/livisk/assets/170719355/7475484c-1bd9-47ac-8ffd-dfe83af667e1
+![bpHMI70Uqqagrg3C](https://github.com/livisk/livisk/assets/170719355/b3173946-9a88-4305-9c82-2c01dbab6abe)
+
 
 
 
