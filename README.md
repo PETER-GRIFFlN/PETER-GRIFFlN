@@ -1,1 +1,1 @@
-![Untitled17_20240709182453](https://github.com/livisk/livisk/assets/170719355/75cfba06-257c-4e93-a661-a2fe910d0186)
+![Untitled18_20240709182800](https://github.com/livisk/livisk/assets/170719355/bf196c5b-d8e4-4528-8ddb-e8520273fe5f)
